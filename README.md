@@ -129,6 +129,7 @@ B.Tech (CSE/IT) Student
 
 - GitHub: https://github.com/the-shuaibrai01
 - LinkedIn: https://www.linkedin.com/in/shuaib-rai
+- - Instagram: @theshuaibrai01
 
 ---
 
